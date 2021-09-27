@@ -32,6 +32,6 @@
 ### Affiliate links
 
 * [Ketel](https://www.amazon.com/Cauldron-Handle-Smudging-Blessings-Incense/dp/B091G4JQXN/ref=sr_1_1_sspa?dchild=1&keywords=cauldron&qid=1632739892&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyNE8zNThDWlZWSFRRJmVuY3J5cHRlZElkPUEwNzkyMjQzMllWVk9UT1o5VzFVJmVuY3J5cHRlZEFkSWQ9QTEwMTExODUzRDQyUDA2SldLNlJYJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) (Amazon)
-* [Baby's](https://www.amsterdam.nl/stadsarchief/stukken/zorg/burgerweeshuis/) (Gemeente Amsterdam)
+* [Baby's](https://www.google.com/maps/place/Weeshuis/@52.355719,4.8728624,14z/data=!4m9!1m2!2m1!1sweeshuis+amsterdam!3m5!1s0x47c609e86b615555:0x7f292b43d714dfb6!8m2!3d52.365889!4d4.8827105!15sChJ3ZWVzaHVpcyBhbXN0ZXJkYW2SAQlvcnBoYW5hZ2U) (Weeshuis Prinsengracht Amsterdam)
 * [Sleutel naar de hel](https://www.amazon.nl/Premium-Tesla-Cover-voor-Model/dp/B081S5HBBK/ref=sr_1_1_sspa?__mk_nl_NL=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=17XGPVBMGGZQZ&dchild=1&keywords=tesla+key+fob&qid=1632740008&sprefix=tesla+key%2Caps%2C160&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExRFFONUM2Qlk3T01OJmVuY3J5cHRlZElkPUEwNDAxNDU1VEtGNFQ1Q09BNDk2JmVuY3J5cHRlZEFkSWQ9QTEwNDU3NzgzT1lWM0ZHWlBJOEk0JndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) (Amazon)
 * [Geit](https://www.marktplaats.nl/l/dieren-en-toebehoren/schapen-geiten-en-varkens/q/dwerggeit/) (Marktplaats)
